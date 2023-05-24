@@ -8,4 +8,4 @@ Here are some ideas to get you starter
 -I'm 15 and I hate my life
 
 -I know a good part of the school and I have many colleagues out ther
-!()[https://media.tenor.com/-l_9sVGD6BAAAAAi/callie101-lol.gif]
+!([https://media.tenor.com/-l_9sVGD6BAAAAAi/callie101-lol.gif])
